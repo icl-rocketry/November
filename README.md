@@ -1,2 +1,2 @@
-# November-
+# November
 Launched in July !!
